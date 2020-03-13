@@ -1,0 +1,2 @@
+# shami
+ I have some strong work experience that will help me with this job if I am successful.  I worked for a year as a student in a company with developer.  That helped me to get confidence in talking to the public, and also showed me that this is a job where I will need to work hard.  I then worked for a short while at home, helping others.  That showed me the other side of working at home, so I can understand the importance of giving the people accurate information with orders. That shows that I am confident with selling my own products.
